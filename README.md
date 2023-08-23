@@ -4,7 +4,7 @@
 
 Hey there! 👋 I'm excited to share that I've recently completed an Email Writing course from **Georgia Institute of Technology.** 📚
 
-## Why It Matters 🗣️
+## Why I took this Certification 🗣️
 I feel effective communication is more than just words:
 
 🌐 **Workplace:** Clear emails are like teamwork boosters, making collaboration a breeze. 🤝
