@@ -1,6 +1,6 @@
 # Mastering Effective Communication ✉️
 
-## Elevate Your Career with Strong Communication Skills! 🚀
+## Writing Professional Emails in English! 🚀
 
 Hey there! 👋 I'm excited to share that I've recently completed an Email Writing course from **Georgia Institute of Technology.** 📚
 
